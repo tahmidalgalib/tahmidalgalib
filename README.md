@@ -1,6 +1,7 @@
-### Hi there 👋, It's me Tahmid Al Galib.
-#### I am a Student.
 ![I am a Student.](https://z-p3-scontent.fdac12-1.fna.fbcdn.net/v/t39.30808-1/210174391_311865133905024_7739812453835498263_n.jpg?stp=dst-jpg_p200x200&_nc_cat=110&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeHe-pg7cvpxi9mivwK9lGluzafNBagbnlPNp80FqBueU2KFZQHXqz_8lvj3RVvDlHxn912YDGXHOYeTfHRijiGe&_nc_ohc=5bAirf79FGsQ7kNvgE194UK&_nc_ht=z-p3-scontent.fdac12-1.fna&oh=00_AYBj3XqrIdIk3SD6umOIqvGJi3T5khSgVC2bXnH357-Hpg&oe=66646FDF)
+
+### Assalamualikum, It's me Tahmid Al Galib.
+#### I am a Student.
 
 I want to succeed in a stimulating and challenging environment that will provide me with advancement opportunities. I want to excel in this field with hard work, perseveranceand dedication. I want a highly rewarding career where I can use my skills and knowledge for organizational and personal growth.
 
